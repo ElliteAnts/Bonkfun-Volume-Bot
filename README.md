@@ -16,11 +16,7 @@ https://solscan.io/tx/4DhpWBz222n3s6KZZXbesx6sCrc4fMnsGq6aZ2Wk7iWxJEsqGpCAWcMSfY
 
 ## 💻 Video
 
-
-
-https://github.com/user-attachments/assets/75bc54b1-afdc-4c8c-8395-20b3cbc1fde7
-
-
+<img width="1916" height="944" alt="bonkspy" src="https://github.com/user-attachments/assets/70f1a886-63aa-432e-89a0-2a0a060e93c1" />
 
 ## 📌 Features
 
